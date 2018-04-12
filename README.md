@@ -1,0 +1,1 @@
+exo sur les mairies du val d'oise par Mouaz : dans le terminal, problème pour répondreaux questions 1 et 2. Merci à vous pour votre passage !
